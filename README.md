@@ -6,7 +6,6 @@ In life, I am :
 - a mid-level developer ⚙️ ;
 - a chess ♟️ & Minecraft player ;
 - and way more...
-- 
 
 #### My socials:
 
